@@ -1,5 +1,5 @@
 Chickpea and Spinach Curry🍒
-===========================
+
 
 Ingredients:
 - 1 can of chickpeas, drained and rinsed
