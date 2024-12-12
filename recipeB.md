@@ -1,4 +1,4 @@
-Chickpea and Spinach Curry
+Chickpea and Spinach Curry🍒
 ===========================
 
 Ingredients:
